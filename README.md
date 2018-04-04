@@ -1,0 +1,1 @@
+Miga Coint v1.0
