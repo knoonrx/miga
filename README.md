@@ -1,1 +1,1 @@
-Miga Coint v1.0
+Miga Coin v1.0
